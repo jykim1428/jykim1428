@@ -1,4 +1,4 @@
-## Hi there 👋
+jykim1428's GitHub under is under construction 👋
 
 <!--
 **jykim1428/jykim1428** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
